@@ -1,0 +1,1 @@
+# Recommending-an-ideal-portfolio-considering-stocks-of-large-cap-industries
